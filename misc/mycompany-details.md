@@ -1,0 +1,2 @@
+Short Summary:
+I currently specialize in configuring, maintaining, and optimizing the Finance module for higher education institutions. My primary mission is to deliver comprehensive fiscal features, streamline university accounting workflows, and ensure precise financial reporting and system integrations to support institutional compliance and strategic planning in detail.
